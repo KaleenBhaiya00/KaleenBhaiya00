@@ -11,5 +11,5 @@ You can click the Preview link to take a look at your changes.
 
 
 I AM A FIVE M SCRIPT DEVLOPER
-I LOVE TO MAKING
-QEX OR QB CORE AND OTHER FRAME WORKS
+I LOVE TO w
+EsX OR QB CORE AND OTHER FRAME WORKS
